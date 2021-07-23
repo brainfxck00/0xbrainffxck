@@ -1,4 +1,4 @@
-ya no te ríes, no me ahogo lo suficientemente rápido
+"ya no te ríes, no me ahogo lo suficientemente rápido"
 
 De algun modo soy una persona comun y sencilla, solo estudio y aprendo, ¿El conocimiento es poder?
 La teoria mas acertada e conocida, es la tan famosa "La teoría del Bing Bang" ¿Quien la dio a conocer?
