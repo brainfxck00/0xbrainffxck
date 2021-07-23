@@ -2,7 +2,7 @@
 
 De algun modo soy una persona comun y sencilla, solo estudio y aprendo, ¿El conocimiento es poder?
 La teoria mas acertada e conocida, es la tan famosa "La teoría del Bing Bang" ¿Quien la dio a conocer?
-Si esa teoria fuera cierta, ¿Quien es "Dios"? ¿De que no serviria la biblia si nada de eso es real?
+Si esa teoria fuera cierta, ¿Quien es "Dios"? ¿De que nos serviria la biblia si nada de eso es real?
 Tal vez solo fue un libro, escrito por una persona comun y sencilla igual que yo...
 ¿Yo puedo ser dios?
 En la saga de "Volver al futuro", hay demasiados errores, hay que tener en cuenta que el tema principal de la pelicula es muy delicado,
